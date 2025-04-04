@@ -1,4 +1,4 @@
-## ABOUT  ME  .
+## ✰‎ ‎ ‎ ABOUT‎ ‎ ME‎ ‎ .
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=voorat)
 
