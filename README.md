@@ -9,7 +9,7 @@ I draw!! I mostly post on Bluesky and Tumblr, but you can find any other socials
 ‎‎  ‎‎ ‎ ‎  ◠◠‎ ‎ ‎ ‎**Send stuff on my Strawpage if you want!**</br>
 (*No matter what socials I respond to gimmicks on, I will always put my gimmicks on my Strawpage and respond to them/showcase them there E:)*)
 
-![](https://file.garden/ZckveC0pxmmjaSgs/IMG_0477.gif)
+![](https://file.garden/ZckveC0pxmmjaSgs/IMG_0477.gif)   ![](https://file.garden/ZckveC0pxmmjaSgs/Screenshot%202025-04-03%20181706.png)
 
 **This is me!‎! ‎ ↗**
 
