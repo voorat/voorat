@@ -1,6 +1,6 @@
 ## ✰‎ ‎ ‎ ABOUT‎ ‎ ME‎ ‎ .
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=voorat)
+![](https://komarev.com/ghpvc/?username=voorat&color=dc6d00)
 
 You can find lots more about me in my links.. super fun stuff there.
 
