@@ -11,4 +11,7 @@ I draw!! I mostly post on Bluesky and Tumblr, but you can find any other socials
 
 ![](https://file.garden/ZckveC0pxmmjaSgs/IMG_0477.gif)
 
-This is me!‎! ‎ ↗
+**This is me!‎! ‎ ↗**
+
+I will play as this pony most (if not all) of the time</br>
+This pony is quite literally me so don't be odd‎ ‎ ヽ( `д´*)ノ
