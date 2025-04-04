@@ -1,6 +1,8 @@
 ## ✰‎ ‎ ‎ ‎ ‎ ABOUT‎ ‎ ‎ ME‎‎ ‎ ‎ .
 
-<h1 align="center">[RENTRY](https://rentry.co/arcrat)</h1>
+<p align="center">
+  rentry
+</p>
 
 ![](https://komarev.com/ghpvc/?username=voorat&color=dc6d00)
 
