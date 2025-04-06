@@ -16,6 +16,7 @@ I draw!! I mostly post on Bluesky and Tumblr, but you can find any other socials
 **This is me!‎! ‎ ↗**
 
 I will play as this pony most (if not all) of the time</br>
-This pony is quite literally me so don't be odd‎ ‎ ヽ( `д´*)ノ
+This pony is quite literally me so don't be odd‎ ‎ ヽ( `д´*)ノ</br>
+(*My girlfriend colored most of my ponies for me!! Credits go to her <3*)
 
 > I knoww this doesn't look good yet shhh shhhdh shhhhhSHHSHHH shhh it doesn't matter I'll make this look pretty and add much more to it soon. One day,,
